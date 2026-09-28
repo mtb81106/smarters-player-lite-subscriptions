@@ -1,0 +1,1 @@
+# smarters-player-lite-subscriptions
